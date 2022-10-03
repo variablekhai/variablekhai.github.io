@@ -1,1 +1,2 @@
-# variablekhai.github.io
+# :<
+This page is under construction :p
